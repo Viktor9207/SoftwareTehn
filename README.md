@@ -1,0 +1,2 @@
+# SoftwareTehn
+nai qkoto repo
